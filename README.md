@@ -2,4 +2,4 @@
 
 ### 아하핫
 
-[![스모쉬](https://file.namu.moe/file/%ED%8C%8C%EC%9D%BC%3Aattachment/smosh_icon.png)](https://www.youtube.com/watch?v=albH3x1DJYs)
+[![스모쉬](http://www.bloter.net/wp-content/uploads/2015/09/smosh-765x430.jpg)](https://www.youtube.com/watch?v=albH3x1DJYs)
